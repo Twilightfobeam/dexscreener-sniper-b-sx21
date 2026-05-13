@@ -1,4 +1,4 @@
-# 
+# Enhance your trading with secure MEV Bot for dexscreener sniper bot | token-launch-monitoring & front-running, the #1 dexscreener sniper bot. Includes token-launch-monitoring and
 
 
 
